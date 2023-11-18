@@ -1,0 +1,2 @@
+# SnowEyesPrivacy
+Privacy Policy
